@@ -1,1 +1,1 @@
-# romania-s-capitals
+# romania-s-neighbours
